@@ -8,3 +8,10 @@ Meu nome é **Enzo**
 
 ### Você entra em contato comigo
 
+00001116102699@al.educacao.sp.gov.br
+
+@enzo__garcez
+
+![](https://media1.tenor.com/m/YI8qKFBUlc8AAAAC/monkey-winston.gif)
+
+https://media1.tenor.com/m/YI8qKFBUlc8AAAAC/monkey-winston.gif
