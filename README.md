@@ -13,5 +13,3 @@ Meu nome é **Enzo**
 @enzo__garcez
 
 ![](https://media1.tenor.com/m/YI8qKFBUlc8AAAAC/monkey-winston.gif)
-
-https://media1.tenor.com/m/YI8qKFBUlc8AAAAC/monkey-winston.gif
